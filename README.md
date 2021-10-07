@@ -1,0 +1,4 @@
+- Hello Me Chamo Vinicius
+- Vulgo ViniciusZK 🇯🇲
+- Sou Programador/Desenvolvedor
+- Ex DIRETOR Crafting Dead.
